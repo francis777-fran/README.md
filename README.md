@@ -1,4 +1,5 @@
-<img width="735" height="623" alt="image" src="https://github.com/user-attachments/assets/5ffe3e86-4ac2-4677-b03e-3be2db2b36e4" />
+<img width="735" height="623" alt="image" src="https://github.com/user-attachments/assets/5ffe3e86-4ac2-4677-b03e-3be2db2b36e4" /> 
+“the coolest person in my family prolly”
 HIII so uh im gonna introduce myself uhh where do i start..
 FANDOMS:south park,jjk,alnst,saiki,fnaf,tshd,death note
 i like drawing,my friends ofcc,listening to songs,petting animals,and playing genshin blabla
