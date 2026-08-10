@@ -3,4 +3,5 @@
 hii so uh im gonna introduce myself uhh where do i start..
 FANDOMS:south park,jjk,alnst,saiki,fnaf,vocaloid,tshd,death note
 i like drawing,my friends ofcc,listening to songs,petting animals,and playing genshin blabla also my genshin uid:786610695
+
 c+h w2i are allowed if u want to be friends dont hesitate ^^
