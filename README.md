@@ -8,4 +8,3 @@ i like drawing,my friends ofcc,listening to songs,hugs,petting animals,and playi
 c+h w2i are allowed if u want to be friends dont hesitate cuz im friendly. ok.
 no strawpage for now bcuz im a lazy chud💔
 ![Uploading image.jpeg…]()
-
